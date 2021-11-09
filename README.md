@@ -1,3 +1,1 @@
-https://dmoj.ca/user/ayay9
-Started CP in April 2021
-
+https://dmoj.ca/user/ayay9 (started april 2020)
