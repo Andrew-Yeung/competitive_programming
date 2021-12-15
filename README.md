@@ -1,1 +1,1 @@
-https://dmoj.ca/user/ayay9 (started april 2020)
+https://dmoj.ca/user/ayay9
